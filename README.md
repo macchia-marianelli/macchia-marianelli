@@ -1,0 +1,3 @@
+- 👋 Hola somos una consultora de recursos humanos @macchia-marianelli
+- 👀 Buscamos personal IT
+- 📫 nuestro mail es macchia.marianelli@gmail.com
